@@ -10,7 +10,7 @@ I have a keen interest in code 👨‍💻software development, 🤖machine lear
 
 My goal is to work as a software engineer in a tech startup.
 
-Feel free to reach out to me via ✉️ prajapatajeet22@gmail.com, 🔗 linkedin.com/in/ajeet-prajapat-10615a282.
+Feel free to reach out to me via ✉️ prajapatajeet22@gmail.com, 🔗 www.linkedin.com/in/ajeet112.
 
 
 
